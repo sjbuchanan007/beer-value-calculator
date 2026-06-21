@@ -9,6 +9,9 @@ Ready-to-post bits and pieces. Grab whenever the moment's right; no schedule.
 A warm, personal origin story. Best posted on a quiet week, a milestone, or
 just when you fancy it — these land best when they're not forced.
 
+**📌 Planned: post after the World Cup** (more room to breathe once the
+tournament noise dies down).
+
 ### Facebook version (page followers — warmer, emojis fine)
 
 > A little story about The Valuator 🍺
